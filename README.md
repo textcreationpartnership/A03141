@@ -35,10 +35,40 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A coale from the altar. Or An ansvver to a letter not long since written to the Vicar of Gr. against
+PErlegi librum hunc cuititulus est [A Coale
+from the Altar; or, An Answer to a
+Letter, &c.] in quo n
+1. THE PRINTER TO
+THE READER.
+
 #####Body#####
 
-1. At Whitehall, the third of November. 1633.
+1. A COALE FROM
+THE ALTAR.
+OR,
+An Answer to a Letter, not long
+since written to the Vicar of GR.
+against the placing of the Communion-Table
+at the East• end of the
+Chancell, &c.
+
+    _ The Introduction.
+
+    _ SECT. I.
+
+    _ SECT. II.
+
+    _ SECT. III.
+
+      * At Whitehall, the third of November. 1633.
+
+1. A
+COPIE OF THE
+LETTER WRITTEN
+to the Vicar of GR: against the
+placing of the Communion Table
+at the East end of the
+Chancell.
 
 **Types of content**
 
